@@ -1,1 +1,1 @@
-# WhatsAppSkin-Chats
+# WhatsApp Skin - Chats
